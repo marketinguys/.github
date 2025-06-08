@@ -1,7 +1,7 @@
 ## This is [Marketinguys](https://marketinguys.com)
 
 
-Find us on **[X](https://x.com/_marketinguys)**, **[Linkedin](https://linkedin.com/company/marketinguys)**, **[Substack](https://marketinguys.substack.com/)**, **[Linktree](https://linktr.ee/marketinguys)**,
+Find us on **[X](https://x.com/_marketinguys)**, **[Linkedin](https://linkedin.com/company/marketinguys)**, **[Substack](https://marketinguys.substack.com/)**, **[Linktree](https://linktr.ee/marketinguys)**, **[Dev.to](https://dev.to/marketinguys)**, **[Huzzler](https://huzzler.so/products/xS04aTDleE/marketinguys)**
 
 <!--
 
