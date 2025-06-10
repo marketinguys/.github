@@ -1,7 +1,7 @@
 ## This is [Marketinguys](https://marketinguys.com)
 
 
-Find us on **[X](https://x.com/_marketinguys)**, **[Linkedin](https://linkedin.com/company/marketinguys)**, **[Instagram](https://www.instagram.com/marketinguysdotcom)**, **[Threads](https://www.threads.com/@marketinguysdotcom)**, **[Substack](https://marketinguys.substack.com/)**, **[Linktree](https://linktr.ee/marketinguys)**, **[Dev.to](https://dev.to/marketinguys)**, **[Huzzler](https://huzzler.so/products/xS04aTDleE/marketinguys)**, **[Fazier](https://fazier.com/company/marketinguys)**, **[Fazier Launch](https://fazier.com/launches/marketinguys)**, **[Best of Web](https://bestofweb.site/marketinguys.com)**,
+Find us on **[X](https://x.com/_marketinguys)**, **[Linkedin](https://linkedin.com/company/marketinguys)**, **[Instagram](https://www.instagram.com/marketinguysdotcom)**, **[Threads](https://www.threads.com/@marketinguysdotcom)**, **[Substack](https://marketinguys.substack.com/)**, **[Linktree](https://linktr.ee/marketinguys)**, **[Dev.to](https://dev.to/marketinguys)**, **[Huzzler](https://huzzler.so/products/xS04aTDleE/marketinguys)**, **[Fazier](https://fazier.com/company/marketinguys)**, **[Fazier Launch](https://fazier.com/launches/marketinguys)**, **[Best of Web](https://bestofweb.site/marketinguys.com)**, **[It's Launched](https://itslaunched.com/product/marketinguys)**,
 
 <!--
 
